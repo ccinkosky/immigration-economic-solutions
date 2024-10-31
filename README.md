@@ -71,7 +71,11 @@ A formalized program would allow companies to hire immigrant workers within the 
 
 ---
 
-## Political Advantages
+The outlined solutions present an opportunity to transform the current challenges of undocumented immigration into productive, structured contributions to the U.S. economy. By establishing a work program, specialized housing, a dedicated security force, and a legal framework for corporate employment, America can leverage this workforce to drive economic growth, reduce production costs, and create new revenue streams. These measures would also reduce inflationary pressures and contribute to lowering the national debt, offering widespread economic benefits.
+
+---
+
+## Political Impact
 
 The issue of undocumented immigration has long fueled division across the political spectrum, with intense partisanship surrounding debates on border security, labor rights, and the integration of undocumented immigrants into society. This has led to a political climate marked by deadlock and conflict, preventing progress on meaningful immigration reform.
 
@@ -89,9 +93,3 @@ This proposed program offers a bipartisan compromise, bringing together elements
 
 **Potential Impact**: By crafting a solution that incorporates core priorities from across the political spectrum, this program offers a path forward on immigration reform that avoids extreme positions. It provides a practical, balanced framework that could break the stalemate on immigration, fostering a cooperative, solution-oriented political environment that benefits all Americans.
 
----
-
-## Final Statement
-The outlined solutions present an opportunity to transform the current challenges of undocumented immigration into productive, structured contributions to the U.S. economy. By establishing a work program, specialized housing, a dedicated security force, and a legal framework for corporate employment, America can leverage this workforce to drive economic growth, reduce production costs, and create new revenue streams. These measures would also reduce inflationary pressures and contribute to lowering the national debt, offering widespread economic benefits.
-
-Politically, this program presents a unique bridge across the partisan divide by blending enhanced security and controlled immigration pathways with opportunities for lawful contribution and integration. By addressing priorities from both conservative and progressive perspectives, this approach fosters a balanced, cooperative path forward, transforming immigration from a point of division into a collaborative, pragmatic solution. Through this compromise, the program not only strengthens the economy but also promotes a more unified political landscape, supporting a stable and prosperous future for all Americans.
