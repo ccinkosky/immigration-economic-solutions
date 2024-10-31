@@ -71,11 +71,12 @@ A formalized program would allow companies to hire immigrant workers within the 
 
 ---
 
+## Conclusion
 The outlined solutions present an opportunity to transform the current challenges of undocumented immigration into productive, structured contributions to the U.S. economy. By establishing a work program, specialized housing, a dedicated security force, and a legal framework for corporate employment, America can leverage this workforce to drive economic growth, reduce production costs, and create new revenue streams. These measures would also reduce inflationary pressures and contribute to lowering the national debt, offering widespread economic benefits.
 
 ---
 
-## Political Impact
+## Political Considerations
 
 The issue of undocumented immigration has long fueled division across the political spectrum, with intense partisanship surrounding debates on border security, labor rights, and the integration of undocumented immigrants into society. This has led to a political climate marked by deadlock and conflict, preventing progress on meaningful immigration reform.
 
