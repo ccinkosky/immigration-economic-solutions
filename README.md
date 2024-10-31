@@ -5,12 +5,12 @@ This report addresses pressing issues related to immigration and economic stabil
 
 ---
 
-## Current Instability
+## Current Issues
 
 ### Large Numbers of Undocumented Immigrants
 - The United States continues to experience significant undocumented immigration, with an estimated 11 million unauthorized immigrants in the country as of recent years. This influx creates challenges in regulation, taxation, and resource allocation, often straining local services and posing security concerns.
 
-### Economic Issues
+### Economic Instability
 
 - **Inflation**: Inflation rates have risen sharply, with consumer prices increasing by over 6% year-on-year at their peak recently. This rise in costs affects the cost of living, diminishing consumer purchasing power and creating additional economic strain on both individuals and businesses.
 
